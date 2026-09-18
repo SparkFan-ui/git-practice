@@ -12,7 +12,7 @@ Another point that stood out to me is that even experienced teams need to improv
 
 
 
-\## Comment from Tony
+## Comment from Tony
 
 
 
